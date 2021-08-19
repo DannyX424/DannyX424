@@ -8,5 +8,7 @@ Aside from coding, I have many hobbies
 - 🥊 In the evenings I love to train in Muay Thai
 - 💪 Lifting at the gym is my passion
 - 🗺️ Trying to explore the world!
-- 📖 Love to read books/Mangas
+- 📖 I Love to read books/Mangas
 - 🎮 When I have time, I play video games, my two systems are PS4 and Nintendo Switch
+- 📺 The shows I love are: Naruto, Recruiters first, Lupin, Queen's Gambit, Dragon Ball Z, and Narcos
+- 🎥 The movies I love are: Vacation, We're the Millers, The Big Lebowski, Blood and Bone, Undisputed (movie series)
