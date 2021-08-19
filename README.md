@@ -1,5 +1,5 @@
 ### A little about me! 👍
-My name is Danny, I am a Marine Corps Veteran who has a passion for learning! I am a proud Guatemalan American.
+My name is Danny, I am a Marine Corps Veteran and a proud Guatemalan American who has a passion for learning!.
 
 - 🗨️ I am currently trying to learn to speak multiple languages
 - 🥊 In the evenings I love to train in Muay Thai
