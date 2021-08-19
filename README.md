@@ -1,16 +1,12 @@
-### Hi there 👋
+### A little about me! 👍
+My name is Danny, I am a Marine Corps Veteran who has a passion for learning! I am a proud Guatemalan American.
 
-<!--
-**DannyX424/DannyX424** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-💻 I am currently working on projects to better my abilities in C#, HTML, SQL, JavaScript, CSS, and more!
+Aside from coding, I have many hobbies
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🗨️ I am currently trying to learn to speak multiple languages
+- 🥊 In the evenings I love to train in Muay Thai
+- 💪 Lifting at the gym is my passion
+- 🗺️ Trying to explore the world!
+- 📖 Love to read books/Mangas
+- 🎮 When I have time, I play video games, my two systems are PS4 and Nintendo Switch
