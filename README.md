@@ -12,4 +12,4 @@ My name is Danny, I am a Marine Corps Veteran and a proud Guatemalan American wh
 - ✍️ Currently writing a fiction story.
 - 😋 I'm definitely big on food
 
-Feel free to message me! I'm always willing to work together with people
+Feel free to message me on LinkedIn! I'm always willing to work together with people
